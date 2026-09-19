@@ -23,4 +23,4 @@ Systems Engineering · Product Development · Operational Optimisation · Verifi
 
 ---
 
-[LinkedIn]https://www.linkedin.com/in/pgrobinsonuk/ · p.g.robinson@icloud.com
+[LinkedIn] https://www.linkedin.com/in/pgrobinsonuk/
